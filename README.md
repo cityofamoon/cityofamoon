@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cityofthemoon
+- 👋 Hi, I’m @cityofamoon
 - 👀 I’m interested in space 🌌
 - 🌱 I’m currently learning how to be an astronaut 🐱‍🚀
 - 💞️ I’m looking to collaborate on anything related to space
